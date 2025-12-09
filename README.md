@@ -5,11 +5,11 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=hempisolate&label=                                           &color=f394b2&base=665)
+![](https://komarev.com/ghpvc/?username=hempisolate&label=                   𐔌՞. .՞𐦯                  &color=f394b2&base=665)
 > 
 ## 
 
-### 𐔌՞. .՞𐦯  <ins>maj</ins>or <sup>or</sup> <ins>chao</ins> cc.
+###   <ins>maj</ins>or <sup>or</sup> <ins>current</ins> ponyname
 > adult<sup>[20]</sup>  afrorican  [plr.](https://en.pronouns.page/they) **<ins>they<ins>** <sup>&&</sup>\
 > <sup>+</sup> he/[thou](https://en.pronouns.page/thou/thee/thy/thine/thyself)  femme⚣  dx'ed sys  [`✝︎⃝`](https://en.wikipedia.org/wiki/Christian_universalism)\
 > pro-fandom etiquette  <sup>[[1]](https://fanofacertainage.blog/2019/05/24/etiquette-and-entitlement-who-is-allowed-to-do-what-in-fandom/) [[2]](https://www.reddit.com/r/AO3/comments/1enyw50/fandom_etiquette_must_return/)</sup>
@@ -19,15 +19,17 @@
 </br>
 
  
-
+ 
 
 
 | | |
 | ------------- | ------------- |
 | <blockquote> <sub>**insta-block random reqs**</sub></br><sup>follow/friend = irl/close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>or lacking fandom etiquette</sup></blockquote> |
 
+<div align="center">
+  
 | |
 | ------------- |
-| <sub>*feel free to interact, but i have <ins>little</ins> to <ins>no</ins> interest befriending anyone*</sub></br><sup>*through this game that i don't already know outside of it — sorry!*</sup> |
+| <sub>*feel free to interact, but i have <ins>little</ins> to <ins>no</ins> interest befriending anyone*</sub></br><sup>*through this game that i don't already know outside of it — sorry!*</sup>
 
 </div>
