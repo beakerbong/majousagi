@@ -24,10 +24,10 @@
 
 | | |
 | ------------- | ------------- |
-| <blockquote> <sub>**insta-block <ins>all</ins> unknown requests**</sub></br><sup>follow / friend list = irls / close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual interaction if <ins>>18</ins>**</sub></br><sup>or if lacking fandom etiquette</sup></blockquote> |
+| <blockquote> <sub>**insta-block <ins>all</ins> unknown requests**</sub></br><sup>friend list = irls / close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual interaction if <ins>>18</ins>**</sub></br><sup>or if lacking fandom etiquette</sup></blockquote> |
 
-| |
-| ------------- |
-| <sub>**i'd really love to chat with you!**  that said, please note i have <ins>little to no</ins> interest fully</sub></br><sup>befriending anyone through this game that i don't also already know outside of it — **sorry!**</sup></blockquote>
+> **i'd really love to chat with you!**  that said, please note: i\
+> have little to <ins>no</ins> interest fully befriending anyone through pony\
+> town that i don't <ins>also</ins> already know outside of it — **sorry!**
 
 </div>
