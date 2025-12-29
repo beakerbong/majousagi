@@ -17,7 +17,7 @@
 
 | | |
 | ------------- | ------------- |
-| <blockquote> <sub>**insta-block <ins>all</ins> unknown followers**</sub></br><sup>follower list = irls / close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual interaction if <ins><18</ins>**</sub></br><sup>or if lacking fandom etiquette</sup></blockquote> |
+| <blockquote> <sub>**insta-block <ins>all</ins> unknown followers**</sub></br><sup>follower list = irls / close <ins>only</ins></sup> </blockquote> | <blockquote> <sub>**limit casual interaction if <ins><18</ins>**</sub></br><sup>or ignorant, intolerant, or incurious |
 
 > medically recognized with DID/MPD\
 > Dissociative Identity Disorder <sup>[F44.81]</sup>\
