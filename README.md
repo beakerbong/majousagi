@@ -14,9 +14,9 @@ pro fandom etiquette
 | <sub>W2I: OFTEN IDLE</sub> | <sub>LIMITED INT: -21, SYS/FICT</sub>  | <sub>NO INT: -16</sub>
 | ------------- | ------------- | ------------- |
 
-> professionally recognized with Dissociative\
-Identity Disorder [ICD-10 F44.81] c. 2025\
-> <sub>**<ins>zero</ins> interest interacting with the online DID/plural community, sorry</sub>**
+> <sub>**professionally recognized with Dissociative</sub>\
+<sup>Identity Disorder [ICD-10 F44.81] c. 2025**</sup>\
+> <sub><ins>zero</ins> interest interacting with the online DID/plural community, sorry</sub>
 
 </div>
 
