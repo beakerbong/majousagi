@@ -11,10 +11,10 @@ pro fandom etiquette
 
 ![](https://komarev.com/ghpvc/?username=majousagi&label=     look after our planet.     &color=188e5a&base=1440)
 
-| <sub>W2I: OFTEN IDLE</sub> | <sub>LIMITED INT: -21, "SYS/FICT"</sub>  | <sub>NO INT: -16</sub>
+| <sub>W2I: OFTEN IDLE</sub> | <sub>LIMITED INT: -21, SYS/FICT</sub>  | <sub>NO INT: -16</sub>
 | ------------- | ------------- | ------------- |
 
-> <sub>**<ins>zero</ins> interest interacting with the online DID/plural community, sorry!</sub>**
+> <sub>**<ins>zero</ins> interest interacting with the online DID/plural community, sorry</sub>**
 
 </div>
 
