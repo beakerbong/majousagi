@@ -16,7 +16,8 @@ pro fandom etiquette
 | <sub>W2I: OFTEN IDLE</sub> | <sub>LIMITED INT: -21, SYS/FICT</sub>  | <sub>NO INT: -16</sub>
 | ------------- | ------------- | ------------- |
 
-> <sub><ins>zero</ins> interest interacting w/ the non-academic DID/online plural community, sorry!</sub>
+> <sub><ins>zero</ins> interest interacting w/ the non-academic</sub>\
+<sup>DID/online plural community, nothing personal!</sup>
 
 </div>
 
